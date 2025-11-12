@@ -1,0 +1,1 @@
+# theharddiamond.github.io
